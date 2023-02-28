@@ -2,7 +2,7 @@
 Wallpapers that I use
 
 
-All of them were and are free.
+All of them were and are free (? haven't verified for a while, anyway I only use the graphs for personal usage and have no commercial intentions).
 
 ## Painters
 
